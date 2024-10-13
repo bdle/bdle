@@ -21,7 +21,7 @@
  ❤️ &emsp; Enjoy hunting bugs/software defects.<br>
  ❤️ &emsp; Love working with developers to investigate and track down bugs.<br>
  ❤️ &emsp; Value automation for test efficiency and effectiveness.<br>
- ❤️ &emsp; Love travel and enjoy life.<br>
+ ❤️ &emsp; <a target="_blank" href="https://www.pointsyeah.com/?linkId=lp_919533&sourceId=ble&tenantId=pointsyeah">I am a Travel on Point Enthusiast. I Love travel and enjoy life.</a><br>
  ❤️ &emsp; Advocate for Live Green and Drive Green<br>
  Find my solar system at https://pvoutput.org/list.jsp?id=88253&sid=78249<br>
  📧 &emsp; Email me to bill.dang.le@gmail.com<br>
